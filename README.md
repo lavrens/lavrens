@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**lavrens/lavrens** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+　　　　" What *time* is it ? "
+<br>
+<br>
+══╪═　　𝕁ohn⠀𝕃au*ren*s　　[(-ꞈ - )](https://rentry.co/johnlaurens)
+<br>
+<br>
+⠀⠀ ⠀　 Ɛ　 **He**⠀╱⠀H~im~　 ✚
+<br>
+<br>
+　　 ⠀　　" Sh**ow** [time](https://open.spotify.com/track/6dr7ekfhlbquvsVY8D7gyk?si=9f7e788d644c4066) ! "
